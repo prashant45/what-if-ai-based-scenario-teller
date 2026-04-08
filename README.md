@@ -119,7 +119,7 @@ what-if-ai-based-scenario-teller/
 
 **PRASHANT HIREGOUDRA**
 📧 [[prashant01589209w@gmail.com](mailto:YourEmail@example.com)]
-🌐 [GitHub Profile Link]
+🌐 [[GitHub Profile Link](https://github.com/prashant45/)]
 
 ---
 
